@@ -1,4 +1,4 @@
-#  
+#  Experience hooked like never before with ultimate hooked Script, the #1 Script. Includes aimbot and auto-upgrade for unbeatable performance.
 
 
 
